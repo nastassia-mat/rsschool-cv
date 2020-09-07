@@ -6,8 +6,8 @@
 **+375445132694**
 - [VK](https://vk.com/matusevna)
 - [in](https://www.linkedin.com/in/nastassia-matusevich-6587421b6/)
- Date of Birth: 29.11.1993г.
- Region of residence: Minsk
+ *Date of Birth: 29.11.1993г.
+ *Region of residence: Minsk
 ___
 
 ### PERSONAL CHARACTERISTICS
