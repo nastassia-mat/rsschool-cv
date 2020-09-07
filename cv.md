@@ -50,3 +50,5 @@ ___
 ### ADDITIONAL INFORMATION
 English language – *В2 (Upper-Intermediate)*, 
 German – *А2.*
+
+[cv link](https://nastassia-mat.github.io/rsschool-cv/cv)
